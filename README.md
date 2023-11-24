@@ -16,3 +16,8 @@ Il ne savait pas rouler mais en plus il était trop bavard, incapable de rester 
 -très impopulaire parmi ses compagnons. Un jour, ses amis décidèrent de le taire en le surprenant avec une aiguille bi
 -en placée, transformant son discours en un hilarant "sssshhhh" aérien.
 
+
+Ce ballon était de forme rectangulaire, avec une matière rugueuse qui composait son corps.
+Ses amis l'appelaient le dégonflé, il était sur cette planète et sa seule raison de vivre lui était inaccessible.
+Voulant prouver au reste du monde que lui aussi était capable de rouler, il alla à la salle de sport afin de changer son corps. 
+
