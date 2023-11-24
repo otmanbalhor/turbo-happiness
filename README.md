@@ -21,3 +21,4 @@ Ce ballon était de forme rectangulaire, avec une matière rugueuse qui composai
 Ses amis l'appelaient le dégonflé, il était sur cette planète et sa seule raison de vivre lui était inaccessible.
 Voulant prouver au reste du monde que lui aussi était capable de rouler, il alla à la salle de sport afin de changer son corps. 
 
+Il décida de transformer sa maladresse en une danse aérienne unique, tourbillonnant dans le ciel étoilé, émerveillant les jouets de sa nouvelle liberté. Bientôt, les autres ballons abandonnèrent leurs rires moqueurs pour se joindre à sa chorégraphie, découvrant ensemble une joie inattendue dans la différence. Ainsi, le royaume ludique devint le théâtre d'une symphonie de formes et de mouvements, prouvant que parfois, c'est la singularité qui crée la plus belle harmonie.
